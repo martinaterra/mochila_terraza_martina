@@ -1,2 +1,0 @@
-# Clase_1_Introduccion
-Clase_1_Introduccion
