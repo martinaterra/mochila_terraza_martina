@@ -1,2 +1,0 @@
-# Clase_18_Etica_Informatica
-Clase_18_Etica_Informatica
