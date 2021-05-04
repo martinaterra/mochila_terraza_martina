@@ -1,2 +1,0 @@
-# Clase_15_Amenazas_Informaticas
-Clase_15_Amenazas_Informaticas
